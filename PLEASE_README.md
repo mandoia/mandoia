@@ -1,0 +1,5 @@
+- 👋 hjello, I’m @mandoia
+- 👀 I’m interested in discord and apple 
+- 🌱 I’m currently learning finnish
+- 💞️ I’m looking to collaborate on nothin
+- 📫 How to reach me discord: mandoia#4763
